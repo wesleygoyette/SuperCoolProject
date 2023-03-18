@@ -1,5 +1,5 @@
 # SuperCoolProject
 
-Guys im having second thoughts, this might not be as cool as I thought.
+This is very cool I can personally attest.
 
-Mark Fuller
+Wesley Goyette
